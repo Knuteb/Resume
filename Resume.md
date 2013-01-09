@@ -3,19 +3,19 @@ Resume
 Knute A Betts
 ===============
 
-• Forest Grove, OR • \(503\) 389-0455 • knuteb@gmail.com
+• Forest Grove, OR • \(503\) 389-0455 • KnuteB@Gmail.com
 
 Objective
 ---------
 
-*  To obtain a entry level position with long term career growth position. 
+*  To obtain a entry level position with long term career growth. 
 
 Skills
 ------
 
-*   **Sales**: B2B(Business to Business), Retail, Phone, Tradeshow.  Regularly brought in $30K/month through phone sales.  Handled front desk businesses with revenue of 25K month.
+*   **Sales**: B2B(Business to Business), Retail, Phone sales and Tradeshow.  Regularly brought in $30K/month through phone sales.  Handled front desk businesses with revenue of 25K month.
 
-*   **Computers**: Windows Office Suitei (Word, Excel, Powerpoint). Mac OS X, Linux (Kubuntu).  Basic network and computer repair and troubleshooting
+*   **Computers**: Windows Office Suite (Word, Excel, Powerpoint). Mac OS X, Linux (Kubuntu).  Basic network and computer repair and troubleshooting
 
 *   **Office**: Multitasking.  Scheduling and data entry.  Prioritization and triage and tasks.  Dispatching of assignments, reviewing work and maintaining standards.
 
