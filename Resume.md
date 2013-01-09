@@ -22,7 +22,7 @@ Skills
 *   **Customer Service**: Positive attitude and professional deamenor.  Managing phone and walk-in customers, providing service that exceeds expectations. 
 
 
-Professional Hisotry
+Professional History
 ---------------
 
 *   **Clays Auto Service** (Hillsboro, Or) 
