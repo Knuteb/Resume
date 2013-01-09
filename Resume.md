@@ -1,4 +1,4 @@
-Resume
+
 ======
 Knute A Betts
 ===============
@@ -38,4 +38,4 @@ Education
 *   **Glencoe High School** (Hillsboro, Or)
 
 
-Storage of my resume
+
